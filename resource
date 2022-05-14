@@ -1,0 +1,1 @@
+to store my resource
